@@ -1,4 +1,4 @@
-## Hi there 👋 Benjamin Darkseid here
+## Hi there 👋
 # 💫 About Me: 
 V.A, Software Engineer, Photographer, Video Editor, Music Lover, Content and Copy Writer.
 something
